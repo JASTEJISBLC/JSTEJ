@@ -1,2 +1,3 @@
 # JSTEJ
-JOHNNY JOHNNY BIG  PAPA Gurman is dumb
+JOHNNY JOHNNY BIG  PAPA 
+Need Sugar
